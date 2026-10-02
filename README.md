@@ -1,1 +1,0 @@
-# aleryos-frz-assets
